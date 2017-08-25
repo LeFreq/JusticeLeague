@@ -2,7 +2,7 @@
 
 Project Total Freedom
 
-So, you got caught under the horseshit of the liberal Left and the Republican right, eh?  Need a little mojo to feel righteous again, a job for your karma to be cleansed, or perhaps a little bored with your 9 to 5 and your ass feeling a little sore?  Welcome.
+So, you got caught in the backwash among the jetskis of the liberal Left and the Republican right, eh?  Need a little push to feel righteous again, a job for your karma to be cleansed, or perhaps a little bored with your 9 to 5 and your ass is feeling a little sore?  Welcome.
 
 Creatives and intellectuals needs a little help, because in this world, there's they leave just a little room for the righteous.  Most of them are sitting in jails, lying in the gutter, or marginalized to "those people" on TV because "those people" refused to take part of the lifestyle that is America.
 

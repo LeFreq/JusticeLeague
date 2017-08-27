@@ -25,4 +25,4 @@ After fighting for these things, everything in your life will get the volume tur
 
 Here on github, we wouldn't dream of acting like the leaders of our nations:  taking the law into our own hands, or engaging in criminal behavior for which we're not willing to be held accountable. No.  We aim to be better: to reclaim our law for the People, and engage only in acts that defend the principles of liberty and justice for all.  Perhaps it may seem questionable to lessor minds.  Enlist them.
 
-There's no violence. The violence has already occurred against the soul.  It's about getting purified.  Keep this in mind before using *any* medium to address your grievences.  
+There's no violence. The violence has already occurred against the soul.  It's about getting purified.  Keep this in mind before using *any* medium to address your grievences.  Be sure to explore the wiki.

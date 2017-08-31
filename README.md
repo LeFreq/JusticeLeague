@@ -2,11 +2,11 @@
 
 Project Total Freedom
 
-So, you got caught in the backwash among the jetskis of the liberal Left and the Republican right?  Need a little push to feel righteous again, a task to fix your karma, or perhaps a little bored with your 9 to 5 and your ass is feeling a little sore?  Welcome.
+So, you got caught in the backwash of the jetskis run by the liberal Left and the Republican right?  Need a little push to feel righteous again, a task to fix your karma, or perhaps a little bored with your 9 to 5 and your ass is feeling a little sore?  Welcome.
 
-This repo is for project ideas to gain a little more freedom from the world.  They might be electronics projects, or requisitions of the creative commons, perhaps some righteous payback.
+This repo is for project ideas for reclaiming the world and yourself.  They might be electronics projects, requisitions of the creative commons, perhaps some righteous payback.
 
-Creatives and intellectuals needs a little help, because in this world, there's little space for those who are creative and more intellectual than th.  You're lucky if you get to sit in the park after dark to philosophize.  Most of the righteous are sitting in jails, lying in the gutter, or marginalized to "those people" on TV because "those people" refused to take part of the lifestyle that is America.
+Creatives and intellectuals needs a little help, because in this world, there's little space for those who are creative and more intellectual than the dominant paradigm.  You're lucky if you get to sit in the park after dark to philosophize.  Most of the righteous are sitting in jails, lying in the gutter, carving out secret dreams in the basement, or marginalized to "those people" on TV because "those people" refused to take part of the lifestyle that is America.
 
 No, these here files are for the true freedom fighters, the revolutionaries of justice, liberators of enslaved capital, and awakeners of the sleepers of the world.  
 

@@ -12,7 +12,7 @@ No, these here files are for the true freedom fighters, the revolutionaries of j
 
 What we are not:  destroyers of assets, harrassers of the weakened, takers from the impoverished, or passive-aggressive pansies that are afraid of speaking for themselves.
 
-Consider:
+There's a lot to consider in jumping off the runaway train of the G20:
 
 * squatting/occupying an abandoned house or warehouse to preserve its value make and make new (i.e. upcycling!),
 * making your own food, from seed, demonstrating *initiative* and *independence*,
@@ -27,4 +27,6 @@ After fighting for these things, everything in your life will get the volume tur
 
 Here on github, we wouldn't dream of acting like the leaders of our nations:  taking the law into our own hands, or engaging in questionable behavior for which we're not willing to be held accountable. No.  We aim to be better: to reclaim our law for the People, and engage only in acts that defend the principles of liberty and justice for all.  Perhaps it may seem questionable to lessor minds.  Enlist them.
 
-There's no violence. The violence has already occurred against the soul.  It's about getting purified.  Keep this in mind before using *any* medium to address your grievences.  Be sure to explore the wiki.
+There's no violence. The violence has already occurred against the soul.  It's about getting purified.  Keep this in mind before using *any* medium to address your grievences.  
+
+Be sure to explore the wiki.  And share what you know.

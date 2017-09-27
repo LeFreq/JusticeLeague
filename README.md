@@ -1,6 +1,6 @@
 *...A guy came to Fight Club for the first time, his ass was a wad of cookie dough. After a few weeks, he was carved out of marble.*
 
-So, you've been mulled in the jetski backwash of the liberal Left and the Republican right?  Need a little push to feel righteous again, a task to fix your karma, or perhaps a little bored with your 9 to 5 and your ass is feeling a little sore from being wide receiver on TEAM AMERICA?  Welcome.
+So, you've been mulled in the backwash from the jetskis of the American Left and Right?  Need a little push to feel righteous again, a task to fix your karma, or perhaps a little bored with your 9 to 5 and your ass is feeling a little sore from being wide receiver on TEAM AMERICA?  Welcome.
 
 This repo is for project ideas for reclaiming the world and yourself.  They might be electronics projects, requisitions of the creative commons, perhaps some righteous payback.
 

@@ -1,6 +1,6 @@
 The Apocalypse is something for the winners on TEAM MEDIOCRE.  It is said in the Gosel of Matthew that "many who are first will be last, and the last first".  This is for those who've felt last in the project of America.
 
-So, you've been mulled in the backwash from the jetskis of the American Left and Right?  Need a little push to feel righteous again, a task to fix your karma, or perhaps a little bored with your 9 to 5 and your ass is feeling a little sore from being wide receiver on TEAM AMERICA?  Welcome.
+So, you've been mulled in the backwash from the jetskis of the American Left and Right?  Need a little push to feel righteous again, a task to fix your karma, or perhaps a little bored with your 9 to 5 and your ass is feeling a little sore from being wide receiver on Planet America?  Welcome.
 
 This repo is for project ideas for reclaiming the world and yourself.  They might be electronics projects, requisitions of the creative commons, perhaps some righteous payback.
 

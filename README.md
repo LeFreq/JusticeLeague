@@ -1,6 +1,8 @@
+"...many who are first will be last, and the last first" --Gospel of Matthew
+
 So, you've been mulled in the backwash from the jetskis of the American Left and Right?  Need a little push to feel righteous again, a task to fix your karma, or perhaps a little bored with your 9 to 5 and your ass is feeling a little sore from being wide receiver on PLANET AMERICA?  Welcome.
 
-The Apocalypse is coming, and it's coming for the winners on TEAM MEDIOCRE.  Those assholes always win.  It is said in the Gospel of Matthew that "many who are first will be last, and the last first".  This is for those who've been last.
+The Apocalypse is coming, and it's coming for the winners on TEAM MEDIOCRE.  Those assholes always win.  This is for those who've been last.
 
 This repo holds project ideas for reclaiming the world and yourself.  They might be electronics projects, requisitions of the creative commons, tools to become enlightened, perhaps some righteous payback.
 

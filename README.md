@@ -16,6 +16,7 @@ There's a lot to consider when jumping off the runaway train of this culture:
 
 * squatting/occupying an abandoned house or warehouse to preserve its value make and make new (i.e. upcycling!),
 * making your own food, from seed, demonstrating *initiative* and *independence*,
+* composting your waste or other outputs so that no one can blame you for making it harder for someone else,
 * creating a subver5ive economy that undercuts the vanity of modern amerika (without hurting anyone (without their consent)),
 * engaging in tactical acts of cultural correction,
 * taking responsibility for the safety of others by massive knowledge of the syst3m, and

@@ -21,12 +21,12 @@ There's a lot to consider when jumping off the runaway train of this economy:
 * taking responsibility for the safety of others by massive knowledge of the syst3m, and
 * by being completely *independent* and *drug-free*, getting smarter, stronger, and *harder*.
 
-Here, you're going to walk the line so finely that no one can cut you down. It takes truth to win, though.
+Here, you're going to walk the line so finely that no one can cut you down. It takes Truth to win, though.
 
 After fighting for these things, everthing in your life will gain new perspective.  You won't be so interested in your smart phone, your audi 5000, that triple-filtered elite coffee shop over in bougie-town.
 
 Here on github, we wouldn't dream of acting like the leaders of our nations:  taking the law into our own hands, or engaging in questionable behavior for which we're not willing to be held accountable. No.  We aim to be better: to reclaim our law for the People, and engage only in acts that defend the principles of liberty and justice for all.  Perhaps it may seem questionable to lessor minds.  Enlist them.
 
-There's no violence. The violence has already occurred against the soul.  They've taken your right to live, to grow your own healthier food, to make your own entertainment.   It's about getting purified.  Keep this in mind before using *any* medium to address your grievences.  
+There's no violence. The violence has already occurred against the soul.  They've taken your right to live, to grow your own healthier food, to make your own entertainment.   It's about getting purified.  
 
-Be sure to explore the wiki.  And share what you know.
+Be sure to explore the wiki and project boards.  Share what you know.

@@ -10,7 +10,7 @@ Creatives and intellectuals needs a little help, because in this world, there's 
 
 No, these here files are for the true freedom fighters, the revolutionaries of justice, liberators of enslaved capital, and awakeners of the dead.  
 
-What we are not:  destroyers of assets, harrassers of the weakened, takers from the impoverished, or passive-aggressive pansies that are afraid of speaking for themselves.
+What we are not:  destroyers of (true) assets, harrassers of the (inncoently) weakened, takers from the (unjustly) impoverished, or passive-aggressive pansies that are afraid of speaking for themselves.
 
 There's a lot to consider when jumping off the runaway train of this economy:
 

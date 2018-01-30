@@ -31,3 +31,5 @@ Here on github, we wouldn't dream of acting like the leaders of our nations:  ta
 There's no violence. The violence has already occurred against the soul.  They've taken your right to live, to grow your own healthier food, to make your own entertainment.   It's about getting purified.  
 
 Be sure to explore the wiki and project boards.  Share what you know.
+
+"Fight Club", by Chuck Palanuik, 1996

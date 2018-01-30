@@ -1,6 +1,6 @@
 "...many who are first will be last, and the last first" --Gospel of Matthew
 
-So, you've been mulled in the backwash from the jetskis of the American Left and Right?  Need a little push to feel righteous again, a task to fix your karma, or perhaps a little bored with your 9 to 5 and your ass is feeling a little sore from being wide receiver on PLANET AMERICA?  Welcome.
+So, you've been mulled by the jetskis of the American Left and Right?  Need a little push to feel righteous again, a task to fix your karma, or perhaps a little bored with your 9 to 5 and your ass is feeling a little sore from being wide receiver on PLANET AMERICA?  Welcome.
 
 The Apocalypse is coming, and it's coming for the winners on TEAM MEDIOCRE.  Those assholes always win.  This is for those who haven't been winning.  No, this repo is for the LOSERS.  That's probably you and me.  Now you're part of the club:  Club Chateaû (at chez nous).
 

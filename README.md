@@ -12,7 +12,7 @@ No, these here files are for the true freedom fighters, the revolutionaries of j
 
 What we are not:  destroyers of assets, harrassers of the weakened, takers from the impoverished, drug users who don't know what do with their lives, or passive-aggressive pansies that are afraid of speaking for themselves.
 
-There's a lot to consider when jumping off the runaway train of this culture:
+There's a lot to consider when jumping off the runaway train of G8 culture:
 
 * honing your life by going straight-edge, 
 * squatting/occupying an abandoned house or warehouse to preserve its value make and make new (i.e. upcycling!),

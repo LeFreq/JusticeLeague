@@ -1,4 +1,4 @@
-"...many who are first will be last, and the last first" Matt 19:30
+"...many who are first will be last, and the last first" Matt 19:30<br>
 "There is no project mayhem."  --Tyler Durden, Fight Club founder
 
 So, you've been mulled by the jetskis of the American Left and Right?  Need a little push to feel righteous again, a task to fix your karma, or perhaps a little bored with your 9 to 5 and your ass is feeling a little sore from being wide receiver on PLANET AMERICA?  Welcome.

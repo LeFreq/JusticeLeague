@@ -1,9 +1,9 @@
 "There is no project mayhem." -- fight flub founder<br>
 "...many who are first will be last, and the last first" Matt 19:30
 
-So, you've been mulled by the jetskis of the American Left and Right?  Need a kick in the ass to feel righteous again, a homework ASSignment to fix your karma, or perhaps you're a little bored with your 9 to 5 and your ass is feeling a little sore from being wide receiver on PLANET AMERICA?  Welcome.
+Tired of your slacker lifestyle of merely dressing slovenly, sitting at coffee shops, and sleeping around?  Mulled by the jetskis of the American Left/Right?  Need a kick in the ass to feel righteous again, a homework ASSignment to fix your karma, or perhaps you're a little bored with your 9 to 5 and your ass is feeling a little sore from being wide receiver on PLANET AMERICA?  Welcome.
 
-The Apocalypse is coming, and it's coming for the winners on TEAM MEDIOCRE.  Those assholes always win.  This is for those who haven't been winning.  No, this repo is for the LOSERS.  That's probably you and me.  Now you're part of the club:  Club Encúler.
+The Apocalypse is coming, and it has come for the winners on TEAM MEDIOCRE.  Those assholes that always "win".  This repo is for the LOSERS of that battle -- probably you and me.  
 
 This repo holds project ideas for reclaiming the world and yourself.  They might be electronics projects, requisitions of the creative commons, tools to become enlightened, perhaps some righteous payback.
 
@@ -34,4 +34,5 @@ There's no violence. The violence has already occurred against the soul.  They'v
 
 Be sure to explore the wiki and project boards.  Share what you know.
 
-"Fight Club", by Chuck Palanuik, 1996
+"Fight Club" (FR: Club Encúler), by Chuck Palanuik, 1996.
+

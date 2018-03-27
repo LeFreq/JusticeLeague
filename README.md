@@ -1,9 +1,7 @@
 THIS IS FIGHT CLUB.
 
-This is not about fighting your neighbor, unless your neighbot is total asshole.  No, our purpose is to ADD order to the anarchy. 
-
-"There is no project mayhem." -- fight flub founder<br>
-"...many who are first will be last, and the last first" Matt 19:30
+"This is not about fighting your neighbor, unless your neighbot is total asshole.  No, our purpose is to ADD order to the anarchy.  There is no project mayhem." -- fight flub founder<br>
+And Jesus said "many who are first will be last, and the last first." Matt 19:30
 
 Tired of your slacker lifestyle of merely dressing slovenly, sitting at coffee shops, and sleeping around?  Mulled by the jetskis of the American Left/Right?  Need a kick in the ass to feel righteous again, a homework ASSignment to fix your karma, or perhaps you're a little bored with your 9 to 5 and your arse is feeling sore from being wide receiver on PLANET AMERICA?  Welcome.
 

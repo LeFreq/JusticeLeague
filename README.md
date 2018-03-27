@@ -5,7 +5,7 @@ This is not about fighting your neighbor, unless your neighbot is total asshole.
 "There is no project mayhem." -- fight flub founder<br>
 "...many who are first will be last, and the last first" Matt 19:30
 
-Tired of your slacker lifestyle of merely dressing slovenly, sitting at coffee shops, and sleeping around?  Mulled by the jetskis of the American Left/Right?  Need a kick in the ass to feel righteous again, a homework ASSignment to fix your karma, or perhaps you're a little bored with your 9 to 5 and your ass is feeling a little sore from being wide receiver on PLANET AMERICA?  Welcome.
+Tired of your slacker lifestyle of merely dressing slovenly, sitting at coffee shops, and sleeping around?  Mulled by the jetskis of the American Left/Right?  Need a kick in the ass to feel righteous again, a homework ASSignment to fix your karma, or perhaps you're a little bored with your 9 to 5 and your arse is feeling sore from being wide receiver on PLANET AMERICA?  Welcome.
 
 The Apocalypse is coming, and it has come for the winners on TEAM MEDIOCRE.  Those assholes that always "win".  This repo is for the LOSERS of that battle -- probably you and me.  This repo holds project ideas for reclaiming the world and yourself.  They might be electronics projects, requisitions of the creative commons, tools to become enlightened, perhaps some righteous payback.
 

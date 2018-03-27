@@ -1,3 +1,7 @@
+THIS IS FIGHT CLUB.
+
+This is not about fighting your neighbor, unless your neighbot is total asshole.  No, our purpose is to ADD order to the anarchy. 
+
 "There is no project mayhem." -- fight flub founder<br>
 "...many who are first will be last, and the last first" Matt 19:30
 

@@ -20,7 +20,7 @@ There's a lot to consider when jumping off the runaway train of G8 culture:
 * making your own food, from seed, demonstrating *initiative* and *independence*,
 * composting your waste or other outputs so that no one can blame you for making it harder for someone else,
 * creating a subver5ive economy that undercuts the vanity of modern amerika (without hurting anyone (without their (unconscious) consent)),
-* engaging in tactical acts of cultural correction,
+* engaging in tactical acts of cultural correction ("culture jamming", c. Adbusters magazine),
 * taking responsibility for the safety of others by massive knowledge of the syst3m, and
 * by being completely *independent*, getting smarter, stronger, and *harder*.
 

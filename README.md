@@ -24,11 +24,11 @@ There's a lot to consider when jumping off the runaway train of G8 culture:
 * taking responsibility for the safety of others by massive knowledge of the syst3m, and
 * by being completely *independent*, getting smarter, stronger, and *harder*.
 
-Here, you're going to walk the line so finely that no one can cut you down. It takes Truth to win, though.  We've got it.  We might even make you enlightened.
+Here, you're going to walk the line so finely that no one can cut you down. It takes Truth to win, though.  We've got it.  Become enlightened.
 
 After fighting for these things, everthing in your life will gain new perspective.  You won't be so interested in your smart phone, your audi 5000, that triple-filtered elite coffee shop over in bougie-town, your porn stash.
 
-Here on github, we wouldn't dream of re-creating the behaviors of our leaders:  taking the law into our own hands without a vision, or engaging in questionable behavior for which we're unwilling to be held accountable.  No.  We aim to be better: to reclaim our law for the People, and engage only in acts that defend the principles of liberty and justice for all.  Perhaps it may seem questionable to lessor minds.  Enlist them.
+Here on github, we wouldn't dream of re-creating the behaviors of our leaders:  taking the law into our own hands (without a vision) or engaging in questionable behavior for which we're unwilling to be held accountable.  No.  We aim to be better: to reclaim our law for the People, and engage only in acts that defend the principles of liberty and justice for all.  Perhaps it may seem questionable to lessor minds.  Enlist them.
 
 There's no violence. The violence has already occurred against the soul.  They've taken your right to live, to grow your own healthier food, to make your own entertainment.   It's about getting purified.  
 

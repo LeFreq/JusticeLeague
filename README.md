@@ -5,7 +5,7 @@ And Jesus said "many who are first will be last, and the last first." Matt 19:30
 
 Mulled by the jetskis of the American Left/Right?  Bored of your slacker lifestyle of sitting at coffee shops, dressing slovenly, and sleeping around?  Need a kick in the ass to feel righteous again, a homework ASSignment to fix your karma, or perhaps you're a little bored with your 9 to 5 and your arse is feeling sore from being wide receiver on PLANET AMERICA?  Welcome.
 
-The Apocalypse is coming, and it has come for the winners on TEAM MEDIOCRE.  Those assholes that always "win".  This repo is for the LOSERS of that battle -- you and me.  This repo holds project ideas for reclaiming the world and yourself.  They might be electronics projects, requisitions of the creative commons, tools to become enlightened, perhaps some righteous payback.
+The Apocalypse is coming, and it has come for the winners on Team Mediocre.  Those assholes that always "win".  This repo is for the LOSERS of that battle -- you and me.  This repo holds project ideas for reclaiming the world and yourself.  They might be electronics projects, requisitions of the creative commons, tools to become enlightened, perhaps some righteous payback.
 
 Creatives and intellectuals needs a little help, because in this world, there's little space for those who are smarter than a monkey or more independent than a cow.  You're lucky if you get to sit in the park after dark to philosophize.  Most of the righteous are sitting in jails, lying in the gutter, carving out secret dreams in the basement, or marginalized to "those people" in foreign countries because "those people" refused to take part of the G8 program.
 

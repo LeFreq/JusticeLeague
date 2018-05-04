@@ -16,10 +16,10 @@ What we are not:  destroyers of assets, harrassers of the weakened, takers from 
 There's a lot to consider when jumping off the runaway train of G8 culture:
 
 * honing your life by going straight-edge, 
-* squatting/occupying an abandoned house or warehouse to preserve its value make and make new (i.e. upcycling!),
 * making your own food, from seed, demonstrating *initiative* and *independence*,
 * composting your waste or other outputs so that no one can blame you for making it harder for someone else,
-* creating a subver5ive economy that undercuts the vanity of modern amerika (without hurting anyone (without their (unconscious) consent)),
+* creating a alternative economy that subv3rt5 the vanity of modern amerika (without hurting anyone)
+* squatting/occupying an abandoned house or warehouse to preserve its value make and make new (i.e. upcycling!),
 * engaging in tactical acts of cultural correction ("culture jamming", c. Adbusters magazine),
 * taking responsibility for the safety of others by massive knowledge of the syst3m, and
 * by being completely *independent*, getting smarter, stronger, and *harder*.

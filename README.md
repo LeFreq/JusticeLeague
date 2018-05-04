@@ -3,7 +3,7 @@ THIS IS FIGHT CLUB.
 "This is not about fighting your neighbor, unless your neighbot is total asshole.  No, our purpose is to ADD order to the anarchy.  There is no project mayhem." -- fight club founder<br>
 And Jesus said "many who are first will be last, and the last first." Matt 19:30
 
-Mulled by the jetskis of the American Left/Right?  Tired of your slacker lifestyle of sitting at coffee shops, dressing slovenly, and sleeping around?  Need a kick in the ass to feel righteous again, a homework ASSignment to fix your karma, or perhaps you're a little bored with your 9 to 5 and your arse is feeling sore from being wide receiver on PLANET AMERICA?  Welcome.
+Mulled by the jetskis of the American Left/Right?  Bored of your slacker lifestyle of sitting at coffee shops, dressing slovenly, and sleeping around?  Need a kick in the ass to feel righteous again, a homework ASSignment to fix your karma, or perhaps you're a little bored with your 9 to 5 and your arse is feeling sore from being wide receiver on PLANET AMERICA?  Welcome.
 
 The Apocalypse is coming, and it has come for the winners on TEAM MEDIOCRE.  Those assholes that always "win".  This repo is for the LOSERS of that battle -- probably you and me.  This repo holds project ideas for reclaiming the world and yourself.  They might be electronics projects, requisitions of the creative commons, tools to become enlightened, perhaps some righteous payback.
 

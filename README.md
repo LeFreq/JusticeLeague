@@ -1,4 +1,4 @@
-FEELING THE LOSS OF HUMAN POTENTIAL?  THIS IS FIGHT CLUB.
+FEELING THE LOSS OF HUMAN POTENTIAL?  WELCOME TO FIGHT CLUB.
 
 "This is not about fighting your neighbor, unless your neighbot is total asshole.  No, our purpose is to ADD order to the anarchy.  There is no project mayhem." -- fight club founder<br>
 And Jesus said "many who are first will be last, and the last first." Matt 19:30

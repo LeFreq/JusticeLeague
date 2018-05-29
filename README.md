@@ -30,7 +30,7 @@ After fighting for these things, everthing in your life will gain new perspectiv
 
 Here on github, we wouldn't dream of re-creating the behaviors of our leaders:  taking the law into our own hands (without a vision) or engaging in questionable behavior (for which we're unwilling to be held accountable), ignoring the problems of the world (without simultaneously making better alternatives).  No.  We aim to be better: to reclaim our law for the People, and engage only in acts that defend the principles of liberty and justice for all.  Perhaps it may seem questionable to lessor minds.  Enlist them.
 
-There's no violence. The violence has already occurred against the soul.  They've taken your right to live, to grow your own food, to make your own entertainment.   It's about getting purified.  
+There's no violence. The violence has already occurred against the soul.  They've taken your right to live, to provide for yourself, to make culture without requiring permission.   It's about getting purified.   STREAM:  Science, Truth, Revolution, Engineering, Art, and Math.
 
 Be sure to explore the wiki and project boards.  Share what you know.
 

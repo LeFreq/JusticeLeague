@@ -36,5 +36,5 @@ Be sure to explore the wiki and project boards.  Share what you know.
 
 STREAM:  Science, Truth, Revolution, Engineering, Art, and Math.
 ----
-"Fight Club" (FR: Club Encúler), by Chuck Palanuik, 1996.
+"Fight Club" (FR: Club Encúler), by Chuck Palahnuik, 1996.
 

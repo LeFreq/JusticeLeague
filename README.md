@@ -11,7 +11,7 @@ Creatives and intellectuals needs a little help, because in this world, there's 
 
 No, these here files are for the true freedom-fighters, the revolutionaries of justice, liberators of enslaved capital, and revivifyers of the comfortably numb.  
 
-What we are not:  destroyers of assets, harrassers of the weak, takers from the poor. drug users who don't want to fix the world, or passive-aggressive pansies that are afraid of speaking for themselves.
+What we are not:  destroyers of assets, harrassers of the weak, takers from the poor. drug users who don't want to fix the world, or passive-aggressive pansies that are afraid of speaking out.
 
 There's a lot to consider when jumping off the runaway train of G8 culture:
 
@@ -24,7 +24,7 @@ There's a lot to consider when jumping off the runaway train of G8 culture:
 * taking responsibility for the safety of others by massive knowledge of the syst3m, and
 * by being completely *independent*, getting smarter, stronger, and *harder*.
 
-Here, you're going to walk the line so finely that no one can cut you down. It takes Truth to win, though.  We've got it.  Become enlightened.
+Here, you're going to walk the line so finely that no one can cut you down. It takes Truth to win, though.  We've got it; become enlightened.
 
 After fighting for these things, everthing in your life will gain new perspective.  You won't be so interested in your smart phone, your audi 5000, that triple-filtered elite coffee shop over in bourgie-town, your porn stash.
 

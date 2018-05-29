@@ -11,7 +11,7 @@ Creatives and intellectuals needs a little help, because in this world, there's 
 
 No, these here files are for the true freedom-fighters, the revolutionaries of justice, liberators of enslaved capital, and revivers of the comfortably numb.  
 
-What we are not:  destroyers of assets, harrassers of the weakened, takers from the impoverished, drug users who don't know what do with their lives, or passive-aggressive pansies that are afraid of speaking for themselves.
+What we are not:  destroyers of assets, harrassers of the weak, takers from the poor. drug users who don't want to fix the world, or passive-aggressive pansies that are afraid of speaking for themselves.
 
 There's a lot to consider when jumping off the runaway train of G8 culture:
 

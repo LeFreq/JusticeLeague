@@ -26,7 +26,7 @@ There's a lot to consider when jumping off the runaway train of G8 culture:
 
 Here, you're going to walk the line so finely that no one can cut you down. It takes Truth to win, though.  We've got it; become enlightened.
 
-After fighting for these things, everthing in your life will gain new perspective.  You won't be so interested in your smart phone, your audi 5000, that triple-filtered elite coffee shop over in bourgie-town, your porn stash.
+After fighting for these things, everthing in your life will gain new perspective.  You won't be so interested in your smart phone, your audi S5, that triple-filtered elite coffee shop over in bourgie-town, your porn stash.
 
 Here on github, we wouldn't dream of re-creating the behaviors of our leaders:  taking the law into our own hands (without a vision) or engaging in questionable behavior (for which we're unwilling to be held accountable), ignoring the problems of the world (without simultaneously making better alternatives).  No.  We aim to be better: to reclaim our law for the People, and engage only in acts that defend the principles of liberty and justice for all.  Perhaps it may seem questionable to lessor minds.  Enlist them.
 

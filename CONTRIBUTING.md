@@ -11,6 +11,9 @@ IMPLEMENTATION can include electronic schematics, gifs of drawings for how to im
 USAGE suggestions section is for maximizing the utility to other friends of the cause (in Spanish: revolución).  Video taping, contacting the press, "customer" and device-placement strategies, and things to do after project finish.
 
 Minimize heavy use of "creative" fonts and superfluous pictures.  Projects never use the word "I".  Because there isn't an "i" in T.E.A.M.:  To Exemplify All Mischief.
+
+CONTRIBS: all the contributors.  Use 'nyms.
+
 ----snip---- TEMPLATE:
 TITLE:
 
@@ -19,3 +22,7 @@ DESCRIPTION:
 IMPLEMENTATION:
 
 USAGE:
+
+CONTRIBS:
+
+

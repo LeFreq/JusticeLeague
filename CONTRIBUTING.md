@@ -14,7 +14,7 @@ Minimize heavy use of "creative" fonts and superfluous pictures.  Projects never
 
 CONTRIBS: all the contributors.  Use 'nyms.
 
-----snip---- TEMPLATE:
+----TEMPLATE FOLLOWS---- 
 TITLE:
 
 DESCRIPTION:

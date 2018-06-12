@@ -18,9 +18,9 @@ There's a lot to consider when jumping off the runaway train of G8 culture:
 * honing your life by going straight-edge, 
 * making your own food, from seed, demonstrating *initiative* and *independence*,
 * composting your waste or other outputs so that no one can blame you for making it harder for someone else,
-* creating a alternative economy that subv3rt5 the vanity of modern amerika (without hurting anyone)
+* creating a alternative economy that subv3rts the vanity of modern amerika (without hurting anyone)
 * squatting/occupying an abandoned house or warehouse to preserve its value make and make new (i.e. upcycling!),
-* engaging in tactical acts of cultural correction ("culture jamming", c. Adbusters magazine),
+* engaging in tactical acts of cultural correction,
 * taking responsibility for the safety of others by massive knowledge of the syst3m, and
 * by being completely *independent*, getting smarter, stronger, and *harder*.
 
@@ -32,7 +32,7 @@ Here on github, we wouldn't dream of re-creating the behaviors of our leaders:  
 
 There's no violence. The violence has already occurred against the soul.  They've taken your right to live, to provide for yourself, to make culture without requiring permission.  
 
-Be sure to explore the wiki and project boards.  Share what you know.  
+Be sure to explore the wiki and project boards.  There isn't too many culture-jamming philes yet.  Share what you know.  
 
 STREAM:  Science, Truth, Revolution, Engineering, Art, and Math.
 ----
